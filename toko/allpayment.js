@@ -6,7 +6,7 @@ return `PAYMENT BY RIZKY
 1. GOPAY
 ㅁ 0882 1337 1423
 	
-Semuanya atas nama Kiki2323 
+Semuanya atas nama kiki2323 
 
 *📲 PULSA*
 
